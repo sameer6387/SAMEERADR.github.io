@@ -1,2 +1,2 @@
-# SAMEERADR.github.io
+#SAMEERADR
 https://sameer6387.github.io/SAMEERADR.github.io/
